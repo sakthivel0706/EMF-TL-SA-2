@@ -1,1 +1,7 @@
-[Uploading EMT (SA).pdf…]()
+![EMF AND TL sa-2_page-0001](https://github.com/user-attachments/assets/24c9b965-c4ab-494f-879c-1868b4c3a4c1)
+![EMF AND TL sa-2_page-0002](https://github.com/user-attachments/assets/dbe07ec2-17ce-49d2-9256-6a67bdd3bcd1)
+![EMF AND TL sa-2_page-0003](https://github.com/user-attachments/assets/0ba95811-c4c4-49fd-a520-1d943f15f0ec)
+![EMF AND TL sa-2_page-0004](https://github.com/user-attachments/assets/68fbeeb5-b2d2-4ad9-8146-59fd3d3bdbc2)
+![EMF AND TL sa-2_page-0005](https://github.com/user-attachments/assets/6c0f307e-7210-493e-b52e-3fae0c7dc2fd)
+![EMF AND TL sa-2_page-0006](https://github.com/user-attachments/assets/45fa62a4-d627-4f1c-9ed0-06f91e10128b)
+![EMF AND TL sa-2_page-0007](https://github.com/user-attachments/assets/ef81e9f5-90f7-4128-8496-f17780a206ea)
